@@ -93,3 +93,31 @@ We won two races and had to abandon one.
 Each of us took turns handling different roles-steering, managing the jib, and controlling the mainsail. There were no accidents, except for one accidental gybe, but no one was hurt. Our team bond became stronger today.
 
 The most important lesson for me today was this: sailing is all about understanding the wind and the current. If you can read them well, sailing becomes much easier.
+
+### 2026-07-02
+
+Today was crazy!
+
+We had a short briefing about the plan for the day: docking in and out, and man overboard drills.
+
+When we started, it was drizzling. The wind was around 7–8 knots (12–15 km/h). We were already getting wet while preparing the boat, without knowing what was coming next.
+
+It felt easier today to prepare the boat and leave the harbor. But the visibility was poor—we could barely see the Öresund Bridge because of the rain. Only a few boats were out, maybe two or three besides us.
+
+As we moved toward the bridge, the weather changed quickly. The drizzle turned into rain. The wind became much stronger. The waves kept getting bigger. The boat started hitting the water hard, like a missile. At times, the wind pushed the boat to a 45–60 degree angle.
+
+Within 15 minutes, we were completely wet. We had to hold on tightly to avoid slipping off the boat. Honestly, it felt like a real man overboard situation.
+
+Because of the weather, we had to cancel the man overboard drill.
+
+The last few days felt like freedom—sailing calmly and enjoying the sea. But today felt different. It was not exactly fear. It was something deeper. Maybe survival instinct. Maybe a direct challenge with nature.
+
+After about three hours in strong wind (around 15–20 km/h) and heavy rain, we were exhausted. We decided to return, especially since we were the last sailing boat still out.
+
+Docking was a real struggle. Pulling down the jib was very difficult. Three of us had to work together to bring it down.
+
+After lowering the mainsail, controlling the boat became even harder. That is when I truly understood how challenging it is to handle a boat without sails in strong wind.
+
+We moved around in the harbor for 10–20 minutes, trying to dock. Finally, a speedboat from the club came to help us. Even with help, it took two attempts to dock properly.
+
+It was an exhausting day. But the team showed great spirit. I think everyone did really well.
